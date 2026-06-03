@@ -18,6 +18,7 @@
 - **Salt and pepper** to taste
 - **1 teaspoon** dried oregano or Italian seasoning
 - **Fresh basil** for garnish (optional)
+- **1 lb** sun-dried tomatoes
 
 
 ## Instructions
@@ -30,6 +31,7 @@
    - Add the bell pepper, zucchini, and spinach. Cook until the vegetables are
      just tender and the spinach has wilted. Season with salt, pepper, and
      dried oregano.
+   - Add sun-dried tomatoes and keep on medium heat for 1 minute.
    - Remove from heat and set aside.
 
 3. **Mix Cheeses:**
